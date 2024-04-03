@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @1901986926
+- 👀 I’m interested in Geophysic
+- 🌱 I’m currently learning Seismology
+- 💞️ I’m looking to collaborate on Everyone
+- 📫 How to reach me : the same qq number
